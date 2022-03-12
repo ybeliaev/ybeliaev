@@ -1,8 +1,7 @@
 ### Hi there 👋🤓
 
 > In war, whichever side may call itself the victor, there are no winners, but all are losers. 
-> 
->:broken_heart:
+
 
 *Neville Chamberlain 1869–1940. British Conservative statesman, Prime Minister 1937–40.*
 
